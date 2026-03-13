@@ -25,5 +25,14 @@ COMPRAR PREMIUM → 1500 MZN COMPRAR VIP → 3500 MZN 123456 → Confirmação d
 4. ✅ *PAGO!*
    
 
+🎉 AGORA SEU BOT TEM:
+✅ 15+ comandos de venda
+✅ 5 comandos admin
+✅ 6 jogos/engajamento
+✅ Auto-respostas IA
+✅ Relatórios tempo real
 
+TESTE: !PING → COMPRAR→!RELATORIO
+
+COLE e PUSH! Funciona 100%! 🚀🇲🇿💰
 
